@@ -103,5 +103,5 @@ Any updates will be published on this page.
 If you have any questions about this privacy policy, please contact:
 
 <div align="center">
-📧 <b>asad.hunter.dev@gmail.com</b>
+📧 <b>=au9328040@gmail.com</b>
 </div>
